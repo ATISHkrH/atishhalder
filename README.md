@@ -64,4 +64,4 @@ Eastern Coalfields Limited (ECL)
 
 ## Contact
 
-📧 kratish005@gmail.com# atishhalder
+📧 kratish005@gmail.com
